@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @amarcrack. I am ultra creative thinker..
+- 👀 I’m interested in searching and drilling internet
+- 🌱 I’m currently learning no language
+- 💞️ I’m looking to collaborate on research and give amazing ideas
+- 📫 How to reach me ... t.me/aaa2001313
